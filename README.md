@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **prny20@gmail.com**
 
-- ⚡ Fun fact **I think i am little lazy**
+- ⚡ Fun fact **I think i am little lazy🥱**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
